@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://media.tenor.com/KJASN0HDjscAAAAi/anime.gif](https://media.tenor.com/hVRhFeDFW6oAAAAi/anime-wave.gif"  />
+<img align="right" height="150" src="https://media.tenor.com/hVRhFeDFW6oAAAAi/anime-wave.gif"  />
 
 ###
 
